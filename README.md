@@ -1,4 +1,4 @@
-# nen-mua-dien-thoai-o-dau-cuoi-nam
+# Nên mua điện thoại ở đâu cuối năm ?
 Lên đời điện thoại là nhu cầu của không ít người mỗi khi tết đến xuân về.Đơn giản là năm mới chúng ta luôn muốn có một món đồ mới, đánh dấu khởi đầu mới, thành công mới. Và biết đâu, những chiếc điện thoại hiện đại ấy sẽ là một trong những phương tiện giúp bạn thành công hơn trong cuộc sống tương lai sắp tới. Tuyệt vời nhất là chúng ta luôn có rất nhiều cơ hội mua điện thoại giảm giá vào dịp cuối năm. Tuy nhiên, hãy thật lưu ý nhé! Những đợt “SALE KHỦNG” này tuy đem đến nhiều lợi ích nhưng cũng tiềm ẩn không ít rủi ro, [nên mua điện thoại ở đâu](https://github.com/alo24h/bai-viet/wiki/N%C3%AAn-mua-%C4%91i%E1%BB%87n-tho%E1%BA%A1i-%E1%BB%9F-%C4%91%C3%A2u-cu%E1%BB%91i-n%C4%83m-h%C3%A3y-nh%E1%BB%9B-l%E1%BB%9Di-khuy%C3%AAn-n%C3%A0y), nên mua điện thoại nào... Bởi thế, tất cả chúng ta đều cần nhớ những lời khuyên sau đây nhé!
 
 ## Nên mua điện thoại ở đâu cũng đừng quên tham khảo giá chính hãng.
