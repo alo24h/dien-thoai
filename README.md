@@ -11,5 +11,5 @@ Nhiều người khuyên rằng chúng ta chỉ nên mua hàng trực tiếp t�
 Đừng quên tìm kiếm và cập nhật [mã giảm giá](https://alo24h.com/) phù hợp để tiết kiệm thêm chi phí nhé!
 Nếu bạn là một tín đồ mua sắm hay chí ít là có hiểu biết cơ bản về mua sắm online. Thì chắc hẳn sẽ không còn quá lạ lẫm về mã giảm giá nữa. Mỗi website bán hàng hầu như đều cung cấp các mã này. Đặc biệt là các website thương mại điện tử lớn như Lazada, Tiki, Adayroi, Sendo... Với những mã giảm giá này, bạn có thể tiết kiệm thêm tỉ lệ % tương đối lớn. Túi tiền của bạn nhờ đó mà sẽ không hao hụt nhiều như khi không sử dụng mã.
 
-Xem thêm: [5 Điện thoại dưới 3 triệu đáng mua nhất](https://alo24h.com/tin-tuc/5-dien-thoai-duoi-3-trieu-dang-mua-nhat).
+Xem thêm: [5 Điện thoại dưới 3 triệu đáng mua nhất](https://alo24h.com/5-dien-thoai-duoi-3-trieu-dang-mua-nhat).
 Xem các bài viết khác [Tại đây](https://github.com/alo24h)
